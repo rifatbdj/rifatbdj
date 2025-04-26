@@ -2,6 +2,6 @@
 - 👀 Passionate about User Experience Design  
 - 🌱 Currently diving deep into Product Design  
 - 🤝 Open to collaborate on freelance projects  
-- 📫 Reach me at: rifatrahmanbdj@gmail.com  
+- 📫 Reach me at: rifat.bdjobs@gmail.com
 - 😄 Pronouns: He/Him  
 - ⚡ Fun fact: I started designing because I used to complain a lot about bad design — now I fix them!
